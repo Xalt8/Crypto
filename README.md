@@ -1,0 +1,1 @@
+## Investment strategy for cryptocurrencies 
